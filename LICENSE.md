@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with best Liquidity Bot for new token sniper bot | contract-verification & meme-coin-scanning, the #1 new token sniper bot. Includes contract-verification and
 
 
 
